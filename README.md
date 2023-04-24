@@ -12,3 +12,4 @@ https://user-images.githubusercontent.com/130538427/231389296-c7567dee-8f32-4d4b
 | selfish    | concerned chiefly or only with yourself and your advantage to the exclusion of others | 自私的          | If people are supposed to be naturally selfish, isn't that the opposite of being social?                                     |
 
 ![Taylor](https://user-images.githubusercontent.com/130538427/232733169-165b0385-8452-440d-bca4-782166ecae15.jpeg)
+![WechatIMG1098](https://user-images.githubusercontent.com/130538427/233925625-89b1d685-7c80-4bb1-b601-afb2d8e10c48.jpeg)
